@@ -1,4 +1,3 @@
-K4p3r3 | 30th MAY 2022
 
 MR ROBOT CTF
 
